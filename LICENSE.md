@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://GlueVisionDecoder.github.io/499-ai-ml-dllection-ai-vf23/ ) |
  |---------------------|----------------------:|
 
 
