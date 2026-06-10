@@ -1,4 +1,4 @@
-# 
+# 最佳 499 AI/ML/DL Projects Collection 插件。集成 边缘AI 和 图像识别，性能最大化。
 
 
 
